@@ -23,3 +23,5 @@ Deixe dourar e misture o milho batido com o leite ao caldo.
 Mexa até dissolvê-lo completamente e cozinhe por cerca de 10 minutos, até obter uma consistência cremosa.
 
 Acrescente o creme de leite, mexa e desligue o fogo.
+
+Bom Apetite!
